@@ -1,3 +1,3 @@
 # Akif-inCokomelleri
-Blog olcak inş
+Merhabalar şuanda blog olması için tatakae yapıyorum olmassa Ğ
 
